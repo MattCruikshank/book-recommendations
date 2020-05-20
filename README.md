@@ -13,6 +13,7 @@ My book recommendations
 * "Fool's War" by Sarah Zettel (for whatever reason, I don't like any of her other books)
 * "The Golden Age," "The Phoenix Exultant," and "The Golden Transcendence" by John C. Wright.  When people talk about "World Building" in books, nothing comes close to this.  10,000 years in the future.  I hate the politics of the author, but I love this series of books.
 * "Anathem" by Neil Stephenson - hard core sci-fi.  It's a difficult read, but worth it.
+* I think it was "The Philip K. Dick Reader" that I read.  Make sure you have one with "Golden Man" in it.  I normally have a hard time with short stories, but Philip K. Dick was a master.
 
 ## Fantasy
 
