@@ -12,6 +12,7 @@ My book recommendations
 * "Ready Player One" by Ernest Cline - light, silly pulp 80s nostalgia in a fast-paced book
 * "Fool's War" by Sarah Zettel (for whatever reason, I don't like any of her other books)
 * "The Golden Age," "The Phoenix Exultant," and "The Golden Transcendence" by John C. Wright.  When people talk about "World Building" in books, nothing comes close to this.  10,000 years in the future.  I hate the politics of the author, but I love this series of books.
+* "Anathem" by Neil Stephenson - hard core sci-fi.  It's a difficult read, but worth it.
 
 ## Fantasy
 
