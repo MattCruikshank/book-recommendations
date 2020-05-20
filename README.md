@@ -3,7 +3,7 @@ My book recommendations
 
 ## Sci-Fi
 
-* "The Martian" by Andy Weir
+* "The Martian" by Andy Weir (sooo much better than the movie)
 * "Daemon" and "Freedom" by Daniel Suarez - a techno-thriller series about a computer virus that takes over the world
 * "Empire from the Ashes" by David Webber
 * "A Fire Upon the Deep" by Vernor Vinge - DO NOT READY ANY DESCRIPTION OF THIS BOOK
@@ -14,6 +14,7 @@ My book recommendations
 * "The Golden Age," "The Phoenix Exultant," and "The Golden Transcendence" by John C. Wright.  When people talk about "World Building" in books, nothing comes close to this.  10,000 years in the future.  I hate the politics of the author, but I love this series of books.
 * "Anathem" by Neil Stephenson - hard core sci-fi.  It's a difficult read, but worth it.
 * I think it was "The Philip K. Dick Reader" that I read.  Make sure you have one with "Golden Man" in it.  I normally have a hard time with short stories, but Philip K. Dick was a master.
+* "The Time Traveler's Wife" by Audrey Niffenegger (sooo much better than the movie)
 
 ## Fantasy
 
